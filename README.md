@@ -2,7 +2,7 @@
 Zeyad Himmat
 
 
-## [☛ zhimmat.com](https://zhimmat.com)
+## [☛ www.zhimmat.com](https://zhimmat.com)
 
 
 I’m a Graphic Designer who enjoys designing icons and logos for video games. I adore connecting my passion for video games with my graphic design skills.
